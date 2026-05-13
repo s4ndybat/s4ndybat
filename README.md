@@ -12,7 +12,7 @@
 
 | !!! i made this github mostly for my ponytown so i guess ill say somethings about that!!!
 
-| c+h is strongly encouraged ! if you are shy and want to sit with someone and not alone i feel very happy if you'd come sit with me!!! its just like john and casey or the ectolab babies... har har har
+| c+h is strongly encouraged ! if you are shy and want to sit with someone and not sit alone id feel very happy if you'd come sit with me!!! its just like john and casey or the ectolab babies... har har har
 
 | id say i block freely but i normally dont block people, it upsets me when im rude to others so i normally just hide you if you're bugging me or i just wont interact so no one gets hurt!!! i love you all !!!
 
