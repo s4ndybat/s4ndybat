@@ -18,7 +18,6 @@
 
 | i am normally afk, i just like sitting in ponytown for hours on end cause i find it comforting, i get notifications from ponytown when people whisper to me, so unfortunately w2i doesnt work very well... sorry!!!
 
-| i am very excited to get my tier four supporter rank on patreon ... may 15th will be a great day for john egbert!!! giggles... . .. 
 
 
 <img src="https://64.media.tumblr.com/67a7cf4057c5c6ab9e5936918daed72a/ea717e5c253f22d8-91/s400x600/bab218bfea47082fd96cebe47babd58ee3f9701e.jpg" alt="Alt Text" width="400" height="533">
