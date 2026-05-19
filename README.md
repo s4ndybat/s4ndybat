@@ -19,7 +19,7 @@
 
 | id say i block freely but i normally dont block people, it upsets me when im rude to others so i normally just hide you if you're bugging me or i just wont interact so no one gets hurt!!! i love you all !!!
 
-| i am normally afk, i just like sitting in ponytown for hours on end cause i find it comforting, i get notifications from ponytown when people whisper to me, so unfortunately w2i doesnt work very well... sorry!!!
+| i am normally afk, i just like sitting in ponytown for hours on end cause i find it comforting, i dont get notifications from ponytown when people whisper to me, so unfortunately w2i doesnt work very well... sorry!!!
 
 
 
