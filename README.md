@@ -8,8 +8,8 @@
 | hiiya ! i yam sandy, but you can call me JOHN if youd like!!! ... i yam a large john egbert kinnie after all!!! :"D
 
 | !!! 15 (nov 3rd birthday!!!) 
-| !!! mostly no dni other than homophobes + racists + proshippers, these things make me uncomfortable!!!
 
+| !!! mostly no dni other than homophobes + racists + proshippers, these things make me uncomfortable!!!
 
 
 
