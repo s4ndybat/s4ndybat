@@ -1,30 +1,25 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=s4ndybat)
+> [!NOTE]
+> if you're here for my ponytown info, read below! if you're here to learn beyond that go look at some of my links!!!
+> 
+  ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=s4ndybat)
 
 
-<img src="https://64.media.tumblr.com/3b26289127106e5a3205fcaae620897c/51417e6709bd0533-11/s400x600/5e46cb7a78afe0539134a355989742609b6784a0.gifv" alt="Alt Text" width="191" height="160">
-↑↑↑ love them!!! love us!!!
+<img src="https://64.media.tumblr.com/3b26289127106e5a3205fcaae620897c/51417e6709bd0533-11/s400x600/5e46cb7a78afe0539134a355989742609b6784a0.gifv" alt="Alt Text" width="181" height="160">
 
+  
+> hi !! u can call me by any of my fictives names listed below ! but sandy also works . . .  
+> ↓↓↓  
+> karkat vantas, john egbert, dave strider, dirk strider, jade harley, arcjec voorat, tavros crocker,,, these ones show in my personality the most 
 
-| hiiya ! i yam sandy, but you can call me JOHN if youd like!!! ... i yam a large john egbert kinnie after all!!! :"D
+## ponytown !
 
-| !!! 15 (nov 3rd birthday!!!) 
+> c+h is encouraged! i do enjoy sitting with people, and i normally do it on my own if i see someone has it in their username... i dont have it in mine because i dont have room for it,, but im more than okay with it !!!  
+> i enjoy a large amount of homestuck ships ,,, if you wanna sit with me i encourage using ponies of a ship that you like, i find it more comforting sitting with someone dressed as,,,, say karkat ! when im in my john or june pony,,, }:o)
 
-| !!! mostly no dni other than homophobes + racists + proshippers, these things make me uncomfortable!!!
+> im normally offtab, and w2i doesnt work because it doesnt really notify me when someones whispered to me... ill try and c if i can fix it !! but in the meantime ill just normally peak in at ponytown 2 see if i have any whispers or if some1 is sitting with me!!  
 
+> dni proshippers, homophobes, basic dni criteria you get it ! also people who dislike homestuck... i am a large enjoyer of the webcomic and we wont get along very well if you're "anti-homestuck" or whateva
 
+> SIGN MY ATA SIGN MY ATA SIGN MY ATA !!! also ask me 2 be oomfs if you want !!! i normally only follow back folks who dont have "spam following" in their bio unless they sign my ata asking to b oomfs :3 i love all you guys !!! hello every oomf!!!
 
-| !!! i made this github mostly for my ponytown so i guess ill say somethings about that!!!
-
-| c+h is strongly encouraged ! if you are shy and want to sit with someone and not sit alone id feel very happy if you'd come sit with me!!! its just like john and casey or the ectolab babies... har har har
-
-| id say i block freely but i normally dont block people, it upsets me when im rude to others so i normally just hide you if you're bugging me or i just wont interact so no one gets hurt!!! i love you all !!!
-
-| i am normally afk, i just like sitting in ponytown for hours on end cause i find it comforting, i dont get notifications from ponytown when people whisper to me, so unfortunately w2i doesnt work very well... sorry!!!
-
-| if u wanna b oomfs whisper 2 me or sign my atabook or send me a gimmick and ask !!! i love all of u guys very much and it would b super cool to get to know more people!!!! just give me your github account when u ask and ill add it to my list,,, and im always online 24/7 so as long as i dont have "offtab" in my user or it doesnt say im away you can totes talk 2 me!!! or whisper 2 me even though w2i doesnt work, i do check in on my ponytown while offtab so ill c your whisper and we can talk !!!
-
-
-
-<img src="https://64.media.tumblr.com/67a7cf4057c5c6ab9e5936918daed72a/ea717e5c253f22d8-91/s400x600/bab218bfea47082fd96cebe47babd58ee3f9701e.jpg" alt="Alt Text" width="400" height="533">
-
-| ok bye !!!
+<img src="https://64.media.tumblr.com/c658e4dcf1ac729c00378a76d2d5ee46/88bfa235d40a0236-4d/s2048x3072/091bdf6a71c63e85267cd9a952875762de41a0ca.gifv" alt="Alt Text" width="1000" height="460">
