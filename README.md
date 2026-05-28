@@ -1,7 +1,7 @@
 > [!NOTE]
 > if you're here for my ponytown info, read below! if you're here to learn beyond that go look at some of my links!!!
 > 
-  ![](https://komarev.com/ghpvc/?username=tyzmle&label=´ཀ`&color=6e7363)
+  ![](https://komarev.com/ghpvc/?username=tyzmle&label=:3&color=6e7363)
 
 
 <img src="https://64.media.tumblr.com/3b26289127106e5a3205fcaae620897c/51417e6709bd0533-11/s400x600/5e46cb7a78afe0539134a355989742609b6784a0.gifv" alt="Alt Text" width="181" height="160">
