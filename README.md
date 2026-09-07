@@ -21,6 +21,6 @@
 
 > ddni proshiPPers, homophobes, basic dni criteria you get it ! also people who dislike homestuck... i am a large enjoyer of the webcomic and we wont get along very weLL if you're "anti-homestuck" or whateva
 
-> SSIGN MY ATA SIGN MY ATA SIGN MY ATA !!! aalso if you want two be friends iLL have my discord linked, you can aDD me if you want two!!! ii reaLLy like makin new friends :O)
+> SSIGN MY ATA SIGN MY ATA SIGN MY ATA !!! aalso if you want two be friends iLL have my discord linked, you can aDD me if you want two!!! ii reaLLy like makin new friends :O) ( im 15, turning 16 in november, so 18+ dni most likely )
 
 <img src="https://64.media.tumblr.com/c658e4dcf1ac729c00378a76d2d5ee46/88bfa235d40a0236-4d/s2048x3072/091bdf6a71c63e85267cd9a952875762de41a0ca.gifv" alt="Alt Text" width="1000" height="460">
